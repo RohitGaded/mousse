@@ -1,1 +1,1 @@
-# mousse
+A decadent, creamy dessert that's low in crabs and ready in minutes!
